@@ -8,7 +8,7 @@ Email：zack@grossbart.com
 
 TEl: +1 514889235
 
-![image](https://github.com/MMK460/NuoMi/blob/master/102121.png)
+![image](https://github.com/MMK460/Cute-Decrypt/blob/master/icon-60%403x.png)
 
 
 # 2.【How to Play】
